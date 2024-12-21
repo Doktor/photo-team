@@ -33,7 +33,7 @@ If you want a physical souvenir to take home, we offer high-quality 4x6 prints o
 
 Please note that prints are subject to availability of materials. We may run out of materials by Sunday, so if you want a print, please try to visit earlier in the weekend\!
 
-Accessibility
+## **Accessibility**
 
 The Photo Room is accessible to most people who use assistive mobility devices, including canes, crutches, and wheelchairs. Please let us know what accommodations you need to use the Photo Room and we'll do our best to assist\!
 
